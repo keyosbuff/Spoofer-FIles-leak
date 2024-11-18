@@ -8,4 +8,5 @@ If you get any errors relating to PNP your motherboard isn't compatible with thi
 
 
 
-- BOCHUMCITY#0001
+### this is not from me i got this by someone dm me on discord 
+## this is for valorant ONLY!!
